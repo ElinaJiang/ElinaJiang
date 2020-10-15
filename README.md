@@ -5,5 +5,5 @@
 - 👯 I’m looking to collaborate on any fun projects
 - 📫 How to reach me: elina1999jiang@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: ...
+
 
